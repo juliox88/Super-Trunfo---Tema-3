@@ -1,1 +1,1 @@
-# Super-Trunfo---Tema-3
+# Repositório dedicado a atividade do Tema 3
